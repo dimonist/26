@@ -1,7 +1,7 @@
 Группа https://vk.com/dimon_sykt заблокирована, как получить доступ:
 ---
 
-Заходите в группу в Telegram: https://t.me/dimon_sykt
+**Заходите в группу в Telegram: https://t.me/dimon_sykt**
 
 Для обхода блокировки вы можете использовать:
 
